@@ -1,5 +1,5 @@
 # Hello!
-My name is Elias (Usually EliasFever). 
+My name is Elias (Mostly known as EliasFever). 
 I am currently a 15 year old from Canada that has Autism and ADHD.
 Currently suffering through my sophmore year of high school.
 
